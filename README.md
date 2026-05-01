@@ -1,2 +1,2 @@
 # Viksit-Bharat-Pitch-Presentation
-Winning pitch presentation for Viksit Bharat Vision 2047 focused on innovative and sustainable solutions aligned with India’s development goals for 2047, highlighting problem-solving, research, and strategic presentation skills.
+Winning Pitch Presentation – Viksit Bharat Vision 2047 focused on Youth Empowerment through an online counselling platform, proposing a direct student–university department head interaction system to help students make informed decisions on subjects and courses. The solution emphasized accessible guidance, transparent academic decision-making, and digital innovation aligned with India’s long-term development goals for 2047, highlighting strong problem-solving, research, and strategic presentation skills.
